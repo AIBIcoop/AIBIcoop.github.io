@@ -1,1 +1,1 @@
-# AIBIcoop.github.io
+# AI-BI Cooperation Group
